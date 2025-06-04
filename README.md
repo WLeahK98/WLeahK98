@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on as many projects as possible... ideally.
 - 📫 How to reach me email: wehliakahin@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I'm a huge Naruto fan, its the topic I'm  most educated on but cant seem to use that knowledge on my CV
+- ⚡ Fun fact: I'm a huge Naruto fan, its the topic I'm  most educated on but cant seem to use that knowledge on my CV unfortunately
 
 <!---
 WLeahK98/WLeahK98 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
